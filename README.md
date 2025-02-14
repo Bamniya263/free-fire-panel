@@ -1,4 +1,4 @@
-# 🔥 **Free Fire Panel - Unleash Your True Power!** 🎮🎯  
+2# 🔥 **Free Fire Panel - Unleash Your True Power!** 🎮🎯  
 
 > **Dominate every match with the ultimate Free Fire Panel!**  
 > Safe, powerful, and packed with revolutionary features. 🚀
